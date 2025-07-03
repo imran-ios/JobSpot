@@ -1,1 +1,1 @@
-![]([https://shorturl.at/lc8ZI])
+![splash screen]([https://shorturl.at/lc8ZI])
